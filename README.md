@@ -1,4 +1,4 @@
-# Lufubear here! 👋
+# Praneeth here! 👋
 
 ### About Me
 
